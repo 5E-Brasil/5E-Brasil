@@ -1,0 +1,5 @@
+- 👋 Olá, sou @5E-Brasil
+- 👀 Somos uma empresa de sistemas
+- 🌱 Atualmente temos 275 clientes ativos
+- 💞️ Temos 22 funcionários
+- 📫 https://5ebrasil.eu.org/
